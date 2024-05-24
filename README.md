@@ -5,7 +5,9 @@ eu moro biritiba mirim#
 sou estudade E E Professor jose carlos prestes
 
 -eu sou estudando no alura
+
 -estou me desenvolvendo na linguaguem javascript 🤖
+
 -utilizo esse espaco para minha organizacao e compatilhamento dos meu projetos desenvolvido
 
  ser vc quiser fala comigo :
