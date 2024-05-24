@@ -16,3 +16,5 @@ sou estudade E E Professor jose carlos prestes
 # email: arobedmarcelino154@gmail.com
 # facebook: debora marcelino
 # tiktok: mia_pngtuber
+
+戌神ころね-ホロライブ](https://github.com/arobedmarcelino/arobed_marcelino/assets/170540948/bc6dd9c2-0af9-455d-aa9d-449b0311022c)
