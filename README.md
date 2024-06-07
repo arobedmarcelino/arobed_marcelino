@@ -17,4 +17,5 @@ sou estudade E E Professor jose carlos prestes
 # facebook: debora marcelino
 # tiktok: mia_pngtuber
 
-戌神ころね-ホロライブ](https://github.com/arobedmarcelino/arobed_marcelino/assets/170540948/bc6dd9c2-0af9-455d-aa9d-449b0311022c)
+![yuuka-bear-ch-yuuka-bear](https://github.com/arobedmarcelino/arobed_marcelino/assets/170540948/a76c78e0-b260-4fe2-83b0-623598ced55f)
+
